@@ -2,6 +2,4 @@
 #Vamos a copiar el programa de la calculadora
 lasjdfñlaskjdfñlasd
 
-defd
-defd
-d bbbbbbbbbbbbbbbbb
+de
