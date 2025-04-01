@@ -4,10 +4,4 @@ lasjdfñlaskjdfñlasd
 
 defd
 defd
-defd
-deff
-
-globalg
-globalg
-hasattrh
-hasattr
+def 
