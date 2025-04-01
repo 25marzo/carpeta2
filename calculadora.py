@@ -2,7 +2,4 @@
 #Vamos a copiar el programa de la calculadora
 lasjdfñlaskjdfñlasd
 sdalfjasñldfj
-lsakdjfñlaskdf
-
-#**************************
-AfD 
+ls 
