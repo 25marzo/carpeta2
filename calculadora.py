@@ -4,4 +4,12 @@ lasjdfñlaskjdfñlasd
 sdalfjasñldfj
 lsakdjfñlaskdf
 
-#**************************
+defd
+defd
+defd
+deff
+
+globalg
+globalg
+hasattrh
+hasattr
