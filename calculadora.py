@@ -4,12 +4,16 @@ lasjdfñlaskjdfñlasd
 sdalfjasñldfj
 lsakdjfñlaskdf
 
-defd
-defd
-defd
-deff
-
-globalg
-globalg
-hasattrh
-hasattr
+#**************************
+AfDDF
+FSDFG
+DDASDFASDFASDFASDFASDF
+#FFFFFFFFFFFFFFFFFFFFFFFFFFF
+ASDasd
+finallyf
+finallyf
+finallyf
+f
+finallyd
+elife
+elifw
